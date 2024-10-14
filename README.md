@@ -1,1 +1,1 @@
-# Swasthya
+# SwasthyaSathi
